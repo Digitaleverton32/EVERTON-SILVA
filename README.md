@@ -3,7 +3,7 @@
 - 🌱 vamos salva o planeta 2
 - 💞️ @Dianaribeiro ...
 - 📫 Fortaleza/CE...
-obriga deus
+obrigo deus
 
 Digitaleverton32/Digitaleverton32 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look
